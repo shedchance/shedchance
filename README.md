@@ -17,3 +17,18 @@ so297ㅤ,ㅤ6teenㅤ🤍ㅤtaken <3
 
 <br>
 
+<div align="center">
+<br>  
+  <table>
+    <tr>
+      <td>
+            <p align="center">
+              
+[main](https://github.com/planetlordd) , [ata](https://planetlordd.atabook.org) , [info](https://meqw.straw.page)
+
+</p>
+        
+</table>
+
+<br>
+
